@@ -32,7 +32,7 @@ I believe every dataset tells a story, and I’m here to narrate it beautifully!
 
 - 🌐 [Portfolio Website](#) *(coming soon!)*
 - 💼 [LinkedIn](https://www.linkedin.com/in/harshini-murali-744a68272/)
-
+- 📩 **Reach Out:** harshinihachu6@gmail.com.
 
 ---
 
